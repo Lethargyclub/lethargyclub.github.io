@@ -1,1 +1,1 @@
-# Lethargyclub.github.io
+# Lethargyclub
